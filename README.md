@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alexjohny87
-- 👀 I’m interested in learning!
+- 👀 I’m interested in sneakers, food, hiking, pottery & the nba!
 - 🌱 I’m currently learning React ⚛️
 - 📫 How to reach me: alexjohny87@gmail.com
 
